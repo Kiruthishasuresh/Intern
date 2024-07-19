@@ -1,2 +1,0 @@
-# Intern
-For gain experience 
